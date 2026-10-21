@@ -1,0 +1,1 @@
+contact me thru discord @14xp if you encounter errors from kit.
